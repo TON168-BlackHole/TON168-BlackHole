@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TON168-BlackHole
 - 👀 I’m interested in Binance Smart Chian ( TON168 )
--  Introducing **TON168**, the most compelling opportunity in the crypto universe – a token with a bold vision to become the “largest black hole” in the digital asset space. With a total supply capped at just **80,000 TON168**, scarcity is at the core of its value proposition, making each token increasingly rare and desirable over time.
+-  Introducing **TON168**, the most compelling opportunity in the crypto universe – a token with a bold vision to become the “largest black hole” in the digital asset space. With a total supply capped at just **50,000 TON168**, scarcity is at the core of its value proposition, making each token increasingly rare and desirable over time.
 
 TON168’s “black hole” metaphor symbolizes its unparalleled potential to accumulate value, drawing in investors and traders alike. As TON168 tokens become more sought after, the ecosystem will mimic the gravitational pull of a black hole, pulling in wealth from across the crypto sphere.
 
